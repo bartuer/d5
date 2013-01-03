@@ -1,0 +1,1 @@
+This is translate of All Things Digital Conference.
